@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @encrypted-client-hello
 - 👀 I’m interested in you
 - 🌱 I’m currently learning you
-- 💞️ I’m looking to collaborate on you
+- 💞️ Change with me, not on me ☺
 - 📫 Think twice? @cc8pro
 
 <!---
